@@ -20,3 +20,15 @@ REMEMBER, CHANGING IS NOT EASY AND YOU CAN'T JUST CHANGE IN ONE DAY. Your brain 
 See you guys~
 
 -----------------------------------------------------------------------------------------------------------
+
+its 20/07/2023
+
+Hello again, its me and im back on writing this. I have stopped detoxing but i still study almost everyday. So here is what i got.
+
+MORE DEPRESSION
+
+Okay thats not entirely right. Im not depressed because i know that each day im getting better. But I still feel that it is not enough and i suck at coding. When the teacher explain about deep neural network. I am like ???? what is this. Why am i so dumb. I really hate being like this and i think to myself. Should i detox again? I think i should no? 
+
+I probably know what i am actually feeling right now. I feel like im studying but because im stagnant again. It feels depressing. My goal to study for at least 5 hours a day. I need to get my shit done. The problem is, i kept waking up so late and sleeping late. Its my own problem yeah i know. Thats why i need to keep striving. I promise to myself, I WILL ACTUALLY STUDY MORE. Because i know that i am incompetent right now. I feel like i got no skills at all. I realize that i can't always feel the change but i am sure that the change is there. Just not apparent enough. I hate myself right now but i know that i can change to be an even better person. See you guys. I will keep updating about myself later on when i reach a certain checkpoint on my life. See you guys.
+
+-----------------------------------------------------------------------------------------------------------
